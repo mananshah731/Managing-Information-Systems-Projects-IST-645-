@@ -1,1 +1,0 @@
-# Managing-Information-Systems-Projects-IST-645-
